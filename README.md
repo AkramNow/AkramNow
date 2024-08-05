@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AkramNow
+- 👀 I’m interested in Minecraft
+- 🌱 I’m currently learning How to code
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me [YouTube](https://www.youtube.com/@Akram-Now)
+- 😄 Pronouns: None I don't exist
+- ⚡ Fun fact: I'm From Algeria
