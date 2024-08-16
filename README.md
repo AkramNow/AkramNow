@@ -2,6 +2,6 @@
 - 👀 I’m interested in Minecraft
 - 🌱 I’m currently learning How to code
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me [YouTube](https://www.youtube.com/@Akram-Now)
+- 📫 How to reach me [YouTube](https://www.youtube.com/@Akram-Now), [Instagram](https://www.instagram.com/_inst.akram/), [Twitter/X](https://x.com/Akram_Now), [Twitch](https://www.twitch.tv/akramactuallynow), [Reddit](https://www.reddit.com/user/Mr-TvHead/), [Discord](https://discord.gg/ukSGC2befq)
 - 😄 Pronouns: None I don't exist
 - ⚡ Fun fact: I'm From Algeria
