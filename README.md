@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @AkramNow
-- 👀 I’m interested in Minecraft
-- 🌱 I’m currently learning How to code
-- 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me [YouTube](https://www.youtube.com/@Akram-Now), [Instagram](https://www.instagram.com/_inst.akram/), [Twitter/X](https://x.com/Akram_Now), [Twitch](https://www.twitch.tv/akramactuallynow), [Reddit](https://www.reddit.com/user/Mr-TvHead/), [Discord](https://discord.gg/ukSGC2befq)
+- 👀 I’m interested in Not Dying
+- 🌱 I’m currently learning How to Breathe
+- 📫 How to reach me : You Don't
 - 😄 Pronouns: None I don't exist
-- ⚡ Fun fact: I'm From Algeria
+- ⚡ Fun fact: I'm From The Sun
